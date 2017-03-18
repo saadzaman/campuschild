@@ -1,1 +1,2 @@
-# campuschild
+Theme name is eikesfk - 
+
